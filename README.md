@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @icomedit
+- 👀 I’m interested in maker a good ideas for all
+- 🌱 I’m currently learning and developing in IoT devices
+- 💞️ I’m looking to collaborate on every person have passion for new digital world
+- 📫 How to reach me to https://www.icomed.it
